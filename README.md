@@ -1,2 +1,2 @@
 # college 
-college HDC
+college Himalaya Darshan College
